@@ -1,1 +1,1 @@
-En este directorio van los datos de prueba de los proyectos
+JUAN SEBASTIAN SANCHEZ DELGADO, 202013577, js.sanchezd1@uniandes.edu.co
